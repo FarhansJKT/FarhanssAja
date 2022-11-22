@@ -2,7 +2,7 @@
 <p align="center">
 •●•
 </p>
-
+Tɪᴀʀᴀ.𝙹𝙼𝚃 友
 <p align="center">
 <img src="https://giffiles.alphacoders.com/120/120248.gif">
 </p>
